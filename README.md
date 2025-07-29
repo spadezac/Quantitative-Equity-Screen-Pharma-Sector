@@ -1,0 +1,1 @@
+# Quantitative-Equity-Screen-Pharma-Sector
